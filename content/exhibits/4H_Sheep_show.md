@@ -11,12 +11,12 @@ Description: Exibit information and entry rules
 ## RULES & AWARDS
 ENTRY FEE: $2.00 per class
 1. Mail entries and entry fees to Janelle Ashley, 33 North Main Street, Whiting, VT 05778
-Tel. 989-9528. Deadline for entries is Monday, July 22.
+Tel. 989-9528. Deadline for entries is Monday, July 26.
 2. Exhibitors must provide their own feed. Sawdust & straw provided.
 3. ALL sheep must be owned or leased by showing youth as of July 30.
 4. All animals must arrive on the grounds and be checked for health, registration and class entries
 between noon and 9:00 p.m. on Monday before the fair. After check in, only scratches
-can be made. Animals must remain in the grounds until 9:00 p.m. on Saturday, August 10. All animals must be removed by 10:00 a.m. Sunday. Exhibitors are
+can be made. Animals must remain on the grounds until 9:00 p.m. on Saturday, August 14. All animals must be removed by 10:00 a.m. Sunday. Exhibitors are
 responsible for taking down and stacking their own pens and cleaning their area.
 5. BARN MEETING for all exhibitors, Tuesday at 6:00 p.m. in the show tent.
 6. HEALTH REGULATIONS — Same as Open Sheep Show.
@@ -56,7 +56,7 @@ Sponsored by Large Animal Medical Associates
 - 10 pts. Showmanship placing
 - 10 pts. Blocking & Fitting Contest
 18. All premiums and awards will be presented at the Exhibitor’s Meeting at 7:00 p.m. on
-August 10th. The Superintendent reserves the right to withhold any premium or award
+August 14th. The Superintendent reserves the right to withhold any premium or award
 to any exhibitor who has not adhered to these rules.
 19. Sheep knowledge quiz for all youth exhibitors required. Novice, junior, intermediate and
 senior division. General knowledge quiz will be given to youth exhibitors at Tuesdays
@@ -65,7 +65,7 @@ barn meeting at 6:00 p.m.
 20. Daily barn inspections, details at barn meeting Tuesday night.
 21. Sheep Project Record Book (optional) turned in at first barn meeting and will be
 returned at Saturdays barn meeting.
-22. EXHIBITOR & PARENTS POT LUCK DINNER, Saturday, August 10th, 6:00 p.m.
+22. EXHIBITOR AWARDS CEREMONY Saturday, August 14th, 6:00 p.m.
 23. Barn Exhibit: A sheep educational display exhibited at the pen. First, second and third
 place prizes sponsored by Green Peppers.
 
@@ -82,15 +82,15 @@ will be awarded to each first place showman.
 
 -  Yearling Ram Class- (limited to youth 12 yrs of age and older-not to be shown in Fitting
 and Showmanship.) 1 yr of age, but under 2 years
--  Senior Ram Class — born on or after September 1, 2018 and before January 1, 2019
--  Junior Ram Class — born on or after January 1, 2019
+-  Senior Ram Class — born on or after September 1, 2020 and before January 1, 2021
+-  Junior Ram Class — born on or after January 1, 2021
 
 ### Champion Ewe
 
 -  Aged Ewe—2 years and older
 -  Yearling Ewe — 1 year of age, but under 2 years
--  Senior Ewe — born on or after September 1, 2018 and before January 1, 2019
--  Junior Ewe — born on or after January 1, 2019
+-  Senior Ewe — born on or after September 1, 2020 and before January 1, 2021
+-  Junior Ewe — born on or after January 1, 2021
 -  Daughter/Dam-Aged ewe with her yearling, Senior or Junior ewe lamb.
 -  Exhibitor’s Flock — group to consist of one (1) Ram Lamb and two (2) Ewes owned by
 exhibitor and shown in classes.
